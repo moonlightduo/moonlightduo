@@ -12,4 +12,5 @@
   <a href="https://github.com/marriageduo">github ALT 2 </a> 𓏴
   <a href="https://github.com/PARKERTW0">github ALT 3 </a> 
   ‎ ‎ ‎ ‎‎<p align="center">
-<img width="600" height="450" alt="md3" src="https://github.com/user-attachments/assets/fde3ae2c-10e6-4c60-8d42-b5cc3aaae098" />
+<img width="1280" height="720" alt="trtr" src="https://github.com/user-attachments/assets/c5f9c418-320d-4947-8de0-d5b339651d85" />
+art credit to obscure-osteria on tumblr!!:D
