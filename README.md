@@ -15,11 +15,14 @@
   <a href="https://x.com/rekstuff">𝖙wt </a> 𓏴
   <a href="https://rekrap2.atabook.org">ata </a> 
   <p align="center">
-  ⠀𐔌⠀⠀┈⠀
-ㅤ
+  ⠀𐔌⠀⠀┈⠀ 
+   ㅤ
+   ㅤ
+   ㅤ
+   ㅤ
+   <img width="150" height="95" alt="stamp5" src="https://komarev.com/ghpvc/?username=moonlightduo&label=ㅤ𝆹ㅤ+moon+light﹐++&color=fff6c1" />
 
 
-ㅤ 
 
 ㅤ
 
