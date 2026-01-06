@@ -21,12 +21,12 @@
 
 ㅤ
 
-ㅤ
+ㅤ<p align="right">
 ౨ৎ     . Art credits: **kymeraka on tumblr / teri_ywy on twitter**   
 
 ㅤ
 
-
+<p align="center">
 <img width="100" height="45" alt="md1" src="https://github.com/user-attachments/assets/f1ca628a-42b5-41a6-bfaa-ce871eadfead" /> ⌣
 <img width="100" height="45" alt="md2" src="https://github.com/user-attachments/assets/6a382a88-faca-46ed-860e-3b0499651322" />
 <img width="100" height="45" alt="meoww" src="https://github.com/user-attachments/assets/4e9aa753-947b-47cf-91ce-217dea1c021b" />
