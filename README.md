@@ -22,7 +22,7 @@
 ㅤ
 
 <p align="center">
-౨ৎㅤㅤㅤㅤ. ACㅤ **kymeraka on tumblr ㅤANDㅤ teri_ywy on twitter**   
+౨ৎㅤㅤㅤㅤ. ACㅤ kymeraka on tumblr ㅤANDㅤ teri_ywy on twitter   
 
 ㅤ
 
@@ -34,3 +34,9 @@
 ㅤ
 
 ㅤ
+<p align="center">
+ 𝜗ㅤㅤMY OTHER GITHUBS!ㅤㅤ♪
+<p align="center">
+ <a href="https://github.com/rylannets">rylannets</a> 𓏴
+  <a href="https://github.com/saparaata">saparata </a> 𓏴
+  <a href="https://github.com/judeloww">judelow wip </a> 
