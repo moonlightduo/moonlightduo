@@ -17,13 +17,6 @@
   <p align="center">
   ⠀𐔌⠀⠀┈⠀
 
-ㅤ
-  ㅤ
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-  ㅤ
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-  ㅤㅤㅤㅤㅤㅤㅤ
   ㅤ
   
 <img width="100" height="45" alt="md1" src="https://github.com/user-attachments/assets/f1ca628a-42b5-41a6-bfaa-ce871eadfead" /> ⌣⌣
