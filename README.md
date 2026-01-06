@@ -21,8 +21,8 @@
 
 ㅤ
 
-ㅤ<p align="right">
-౨ৎ     . Art credits: **kymeraka on tumblr / teri_ywy on twitter**   
+<p align="center">
+౨ৎㅤㅤㅤㅤ. ACㅤ **kymeraka on tumblr ㅤANDㅤ teri_ywy on twitter**   
 
 ㅤ
 
